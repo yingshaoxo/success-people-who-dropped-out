@@ -45,5 +45,8 @@ Co-Chairman and Co-CEO of **BlackBerry**
 ### Cindy Mi
 Founder and CEO of **VIPKid**
 
+### Colonel Sanders
+Founder of Kentucky Fried Chicken (also known as **KFC**) 
+
 ### James Cameron
 A Canadian filmmaker, artist, and environmentalist
